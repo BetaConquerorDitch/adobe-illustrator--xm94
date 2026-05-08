@@ -1,4 +1,4 @@
-
+Get the ultimate Adobe Illustrator for macOS extension with updated Adobe Illustrator for macOS Extension | masking tools + blend modes. Featuring masking tools and blend modes,
 
 
 
